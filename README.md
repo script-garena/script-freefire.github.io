@@ -1,1 +1,0 @@
-# script-freefire.github.io
